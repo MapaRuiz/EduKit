@@ -11,3 +11,5 @@
 🏦- University: Pontificia Universidad Javeriana
 
 🧑‍🤝‍🧑- Team: Juan Rozo, Gabriel Riaño, Luis Gutierrez, Felipe Torres y Mapa Ruiz
+
+©2025 Mapa Ruiz. All rights reserved
